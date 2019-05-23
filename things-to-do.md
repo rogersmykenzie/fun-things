@@ -1,2 +1,2 @@
-# Welcome Friends!!
-## Welcome to my site
+# I hate you friends
+## Noones invited to my birthday
